@@ -1,0 +1,2 @@
+- Olá me chamo Giovanni
+- Meu email para contato é (email) (survivalgamingproject@protonmail.com)
